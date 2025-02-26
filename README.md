@@ -1,6 +1,6 @@
 # Dumanbet 🎲 Güvenilir ve Zengin İçerikli Bahis Platformu
 
-<a href="https://dumanbet.com"><img src="https://s3.gifyu.com/images/b2PKE.gif" alt="Dumanbet Banner" /></a>
+<a href="https://shorten.is/wwin"><img src="https://s3.gifyu.com/images/b2PKE.gif" alt="Dumanbet Banner" /></a>
 
 **Dumanbet**, geniş oyun seçenekleri, yüksek bahis oranları ve kullanıcı dostu arayüzüyle öne çıkan, lisanslı ve güvenilir bir çevrimiçi bahis platformudur. Spor bahislerinden canlı casino oyunlarına, e-spor bahislerinden çeşitli bonuslara kadar geniş bir hizmet yelpazesi sunmaktadır.
 
@@ -19,7 +19,7 @@
 - **7/24 Müşteri Desteği**: Profesyonel destek ekibi, günün her saati canlı sohbet ve e-posta yoluyla kullanıcıların sorularını yanıtlar.
 
 - **Cazip Bonuslar ve Promosyonlar**: Yeni ve mevcut kullanıcılar için düzenli olarak güncellenen bonus ve promosyonlarla ekstra kazanç fırsatları sunar.
-
+<a href="https://shorten.is/wwin"><img src="https://s3.gifyu.com/images/b2PKE.gif" alt="Dumanbet Banner" /></a>
 ## Dumanbet ile Nasıl Başlanır?
 
 1. **Kayıt Olun**: Basit ve hızlı kayıt süreciyle üyeliğinizi oluşturun.
